@@ -1,1 +1,1 @@
-[The Black Squirrel Cabin](http://www.mthoodrent.com/Unit/Details/112470) is a cozy modern pioneer cabin in Government Camp, OR. Sleeps 8. Just a short walk to the Timberline shuttle and town, on a quiet private road with a tree-top hot tub that backs up to Mt Hood National Forest.
+[The Black Squirrel Cabin](http://www.mthoodrent.com/Unit/Details/112470) is a cozy modern pioneer cabin in Government Camp, OR. Sleeps 8. Just a short walk to the Timberline shuttle and town, on a quiet private road, with a tree-top hot tub up that backs up to Mt Hood National Forest.
